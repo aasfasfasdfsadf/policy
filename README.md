@@ -1,7 +1,4 @@
-# Privacy Policy for [Your Custom GPT Name]
-
-**Effective Date:** [Insert Date]  
-**Last Updated:** [Insert Date]
+# Privacy Policy for VANHONG MKT
 
 ## Introduction
 
